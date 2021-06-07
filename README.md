@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Alyx, you may know me better as 1nkyd1nky!
+- 👀 I’m interested in macOS, Web Development, Minecraft, Nintendo, and Digital Preservation
+- 📫 How to reach me Twitter: @1nkyd1nky, Discord: alyx#1161
+- 💖 Pronouns: She/They
