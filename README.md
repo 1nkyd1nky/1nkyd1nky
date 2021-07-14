@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Alyx, you may know me better as 1nkyd1nky!
 - 👀 I’m interested in macOS, Web Development, Minecraft, Nintendo, My Chemical Romance, Fall Out Boy, iDKHOW, and Digital Preservation
 - 📫 How to reach me Twitter: @alyxd1nky, Discord: alyx#9546
-- 💖 Pronouns: She/her
+- 💖 Pronouns: She/Her
